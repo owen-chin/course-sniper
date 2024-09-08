@@ -1,0 +1,1 @@
+# Course Sniper for RU courses
